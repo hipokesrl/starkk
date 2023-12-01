@@ -1,2 +1,2 @@
-#gtr starkk
+#gtr sta\\\rkk
 ygd
