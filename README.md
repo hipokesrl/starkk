@@ -1,2 +1,2 @@
 #gtr starkk
-ygtfrd
+ygd
